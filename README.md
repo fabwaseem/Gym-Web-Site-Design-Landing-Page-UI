@@ -1,4 +1,4 @@
-💌 Have a project idea? We are available for new projects!
+💌 Have a project idea? I'm available for new projects!
 
 waseemaofficial@gmail.com | <a href="https://www.waseemanjum.online">Website</a> | <a href="https://www.fiverr.com/wasi_web">Fiverr</a>
 
