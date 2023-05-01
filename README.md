@@ -1,1 +1,7 @@
-# Gym-Web-Site-Design-Landing-Page-UI
+💌 Have a project idea? We are available for new projects!
+
+waseemaofficial@gmail.com | <a href="https://www.waseemanjum.online">Website</a> | <a href="https://www.fiverr.com/wasi_web">Fiverr</a>
+
+This is the landing page that for a gym website completely responsive and cross-browser compatible.
+
+Follow me on: | <a href="https://www.facebook.com/fabwaseem/">Facebook</a> | <a href="https://www.linkedin.com/in/fabwaseem/">Linkedin</a> | <a https://www.youtube.com/channel/UCiUtBDVaSmMGKxg1HYeK-BQ">YouTube</a>
